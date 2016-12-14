@@ -2,7 +2,7 @@
 
 2017 Modern Language Association Convention 
 
-477. Minimal Digital Humanities: Choice or Necessity?
+Session 477. Minimal Digital Humanities: Choice or Necessity?
 
 Saturday, 7 January, 10:15–11:30 a.m., 106B, Pennsylvania Convention Center
 
